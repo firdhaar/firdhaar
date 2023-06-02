@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Firdha Agustya Rimawan
+- 👀 I’m interested in Football
